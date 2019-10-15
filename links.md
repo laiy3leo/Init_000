@@ -34,3 +34,6 @@ Morgan Williams https://vimeo.com/359082333
 Boyuan Zheng    https://player.vimeo.com/video/358325146
 
 Bingyu Xia https://vimeo.com/358623629
+
+
+Yining Lai https://vimeo.com/359097318
